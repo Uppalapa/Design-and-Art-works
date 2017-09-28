@@ -19,7 +19,6 @@
 ![20170517_120634](https://user-images.githubusercontent.com/25045759/30954270-8a16f4c6-a3fd-11e7-8f74-396219630182.jpg)
 
 ## calligraphy
-![img-20161113-wa0045](https://user-images.githubusercontent.com/25045759/30954271-8a17b3de-a3fd-11e7-8e26-d004517bedf5.jpg)
-
+![picsart_05-15-11 09 22](https://user-images.githubusercontent.com/25045759/30954349-d0f16ffc-a3fd-11e7-9128-883d068dac2c.png)
 
 
